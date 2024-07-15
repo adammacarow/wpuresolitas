@@ -1,0 +1,1 @@
+gdabss baca
